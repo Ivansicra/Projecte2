@@ -3,4 +3,4 @@ L’empresa TecnoGestió S.L., dedicada a la gestió documental i assessorament 
 S’han posat en contacte amb l’empresa on esteu fent l’estada i el vostre responsable us ha encarregat que en feu l’estudi i tria del SAI.
 
 
-![Minion](<img width="156" height="148" alt="image" src="https://github.com/user-attachments/assets/251ff3f9-fb84-40f1-ba02-5e9bda15d680" />)
+![Minion](https://www.google.com/imgres?q=minion&imgurl=https%3A%2F%2Fstatic.wikia.nocookie.net%2Fdespicableme%2Fimages%2Ff%2Ff0%2FDM3_Minions_.jpg%2Frevision%2Flatest%3Fcb%3D20230531232107&imgrefurl=https%3A%2F%2Fdespicableme.fandom.com%2Fwiki%2FMinions&docid=A2pKTcra5IBmfM&tbnid=eYWHh_AZTnZBbM&vet=12ahUKEwjqqYXS9o-QAxWA1gIHHYRVFywQM3oECCsQAA..i&w=845&h=1039&hcb=2&ved=2ahUKEwjqqYXS9o-QAxWA1gIHHYRVFywQM3oECCsQAA&safe=active&ssui=on)
